@@ -9,7 +9,7 @@
 ## Ingredients
 
 - 3 c flour
-- 1 + 1/4 tbsp salt
+- 1 tsp salt
 - 1/4 tsp instant yeast or 1.25/4 tsp active dry yeast
 - 1 + 1/2 + 1/8 cups hot water
 - Oven-safe pan
